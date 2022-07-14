@@ -1,2 +1,4 @@
 # lay-lai-tien-nap-nham-mobifone
 1 Bước lấy lại tiền khi nạp nhầm số điện thoại Mobi
+<p style="text-align: justify;">Làm thế nào để <a href="https://3gmobifones.com/cach-lay-lai-tien-nap-nham-so-dien-thoai-mobifone"><strong>lấy lại tiền khi nạp nhầm số điện thoại MobiFone</strong></a> chắc chắn đang là vấn đề mà nhiều khách hàng mong muốn hỗ trợ. Sơ suất này thường xảy ra khi người dùng tiến hành nạp tiền Online hay nạp giúp thuê bao của người khác.</p>
+<p style="text-align: justify;">Thông thường, bạn sẽ không thể lấy lại tiền một khi đã nạp vào tài khoản của mình. Tuy nhiên, đây là trường hợp đặc biệt khi mệnh giá nạp có thể rất cao mà bạn lại nạp nhầm vào tài khoản khác. Vậy nhà mạng đã hỗ trợ khách hàng vấn đề này chưa? Hãy cùng <a href="http://3gmobifones.com" target="_blank" rel="noopener">3gmobifones.com</a> tìm hiểu trong nội dung dưới đây.</p>
